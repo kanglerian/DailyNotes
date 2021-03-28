@@ -105,6 +105,31 @@ Self care yaitu perawatan diri tentunya sangat diperlukan untuk mempertahankan k
 5. **Pukul 06.00 - 09.00 P.M** <br>
    Gunakan waktu ini untuk : Bersantai, beribadah, evaluasi dan waktu untuk keluarga
 
+<hr>
+
+## 7 Tanda Batinmu lelah
+
+Ada kondisi dimana jiwamu tidak sedang baik-baik saja, entah itu dipicu dari masalah Eksternal ataupun Interal atau diri sendiri. Nah, ini beberapa tanda yang baru bisa kami rangkum tentang **tanda-tanda** bahwasannya **batinmu** itu sedang **lelah** :
+
+1. Mudah tersinggung.
+2. Menjadi tidak sabaran dan mudah marah.
+3. Tidak termotivasi untuk melakukan sesuatu bahkan pad ahal yang biasanya disukai.
+4. Sering gelisah atau ketakutan akan banyak hal secara berlebihan, khususnya masa depan.
+5. Sering rasanya ingin menangis tiba-tiba dan merasakan kesedihan tanpa tau sebabnya.
+6. Mulai terasing dengan sekitar, merasa sendirian di tengah keramaian dan lebih asik membayangkan kehidupan ideal yang kita ciptakan di dalam pikiran.
+7. Tidur mulai tidak merasakan nyenyak dan saat bangun tidak bugar.
+
+Maka itu adalah **tanda jiwa atau batin tengah kelelahan.** Saran terbaik adalah, **hentikan sejenak aktivitas yang menyita banyak waktu**. Lalu, **luangkan waktu untuk mengistirahatkan jiwa.** Caranya :
+
+- Tidak ada dokter yang bisa mengobati sang jiwa kecuali pemiliknya.
+- Perbanyak berdo'a bermunajat. Wudhu, gelar sajadah, lalu sholat meski hanya 2 rakaat.
+- Berdiam diri setelah shalat, duduk saja. Nikmati... kemudian diam dan berdzikir menyebut nama Allah.
+- Berbincanglah sepihak dengan Allah.
+
+Lebih baik gunakan pada waktu malam hari sekitar pukul 3 pagi atau sepertiga malam. Beristirahatlah, mengadulah pada Rabbmu. Karena jiwa yang lelah adalah isyarat waktu kebersamaanmu bersama Rabb-mu teramat kurang.
+
+<hr>
+
 ## Di akhir pekan, kamu bisa lakukan ini
 
 1. Menulis jurnal
